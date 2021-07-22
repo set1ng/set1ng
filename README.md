@@ -2,7 +2,7 @@
 
 🧠 And I am a Developer on Pocketmine ..
 
-🪐 You can contact me through my discord, set1ng.#0001 ..
+🪐 You can contact me through my discord, Imsett1ng_.#0001 ..
 
 🥀 I'm interested in learning C++ ..
 
